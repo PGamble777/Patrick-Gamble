@@ -1,2 +1,2 @@
 # Patrick Gamble
-## [Skills](/Patrick-Gamble/skills.md)
+## [Skills](/Patrick-Gamble/skills)
