@@ -11,7 +11,7 @@
 - Aided in the collection, organization, and digitization of information into the UAB Customer Relationship Management (CRM) database
 - Met with donors, planned events, and coordinated with Board of Directors to facilitate effective fundraising
 
-## **LORI SLATON TUTORING SERVICES**
+## **LORI SLATON TUTORING SERVICES, HUNTSVILLE, AL**
 ### June 2018 - May 2019
 ### **Private Tutor**
 - Provided instruction in Algebra, Geometry, Trigonometry, Precalculus, Calculus, and Chemistry to middle and high school students
