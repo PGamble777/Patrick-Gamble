@@ -1,3 +1,5 @@
+## | [Home](/Patrick-Gamble/index) | [Skills](/Patrick-Gamble/skills) | [Education](/Patrick-Gamble/education) | [Work Experience](/Patrick-Gamble/work-experience) | [Lab Experience](/Patrick-Gamble/lab-experience) | [Extracurriculars](/Patrick-Gamble/extracurriculars) |
+
 # Lab Experience
 ## **UNIVERSTIY OF ALABAMA AT BIRMINGHAM DEPARTMENT OF RADIOLOGY**
 ### June 2021 - August 2021
