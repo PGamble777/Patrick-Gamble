@@ -6,14 +6,14 @@
 ### **Private Tutor**
 - Provided instruction in Chemistry and Geometry to high school students of various age
 
-## **[O'NEAL COMPREHENSIVE CANCER CENTER](https://www.uab.edu/onealcancercenter/), BIRMINGHAM, AL**
+## **[O'Neal Comprehensive Cancer Center](https://www.uab.edu/onealcancercenter/), Birmingham, AL**
 ### June 2020 - August 2020, June 2019 - August 2019
 ### **Student Intern**
 - Worked under Director of Corporate Development and Special Events
 - Aided in the collection, organization, and digitization of information into the UAB Customer Relationship Management (CRM) database
 - Met with donors, planned events, and coordinated with Board of Directors to facilitate effective fundraising
 
-## **LORI SLATON TUTORING SERVICES, HUNTSVILLE, AL**
+## **Lori Slaton Tutotring Services, Huntsville, AL**
 ### June 2018 - May 2019
 ### **Private Tutor**
 - Provided instruction in Algebra, Geometry, Trigonometry, Precalculus, Calculus, and Chemistry to middle and high school students
