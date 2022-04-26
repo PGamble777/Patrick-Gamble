@@ -1,7 +1,7 @@
 ## | [Home](/Patrick-Gamble/index) | [Skills](/Patrick-Gamble/skills) | [Education](/Patrick-Gamble/education) | [Work Experience](/Patrick-Gamble/work-experience) | [Lab Experience](/Patrick-Gamble/lab-experience) | [Extracurriculars](/Patrick-Gamble/extracurriculars) |
 
 # Work Experience
-## **[PREP SOURCE](https://www.prepsourcetutors.com/), NASHVILLE, TN**
+## **[Prep Source](https://www.prepsourcetutors.com/), Nashville, TN**
 ### April 2022 - May 2022
 ### **Private Tutor**
 - Provided instruction in Chemistry and Geometry to high school students of various age
