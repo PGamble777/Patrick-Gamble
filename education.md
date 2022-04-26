@@ -1,3 +1,5 @@
+## | [Home](/Patrick-Gamble/index) | [Skills](/Patrick-Gamble/skills) | [Education](/Patrick-Gamble/education) | [Work Experience](/Patrick-Gamble/work-experience) | [Lab Experience](/Patrick-Gamble/lab-experience) | [Extracurriculars](/Patrick-Gamble/extracurriculars) |
+
 # Education
 ## Undergraduate
 Aug 2020 - May 2024
