@@ -6,7 +6,7 @@ March 2022
 ### Model
 - Modeled in the first annual Vandy Fashion Week Sustainability Fashion Show
 
-## Grissom Math Team
+## [Grissom Math Team](https://www.grissommath.org/)
 August 2016 - May 2020
 ### Technical Director
 - Maintained website and registration system as well as writing and editing tests
