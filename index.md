@@ -1,7 +1,7 @@
 ### | [Home](/Patrick-Gamble/index) | [Skills](/Patrick-Gamble/skills) | [Education](/Patrick-Gamble/education) | [Work Experience](/Patrick-Gamble/work-experience) | [Lab Experience](/Patrick-Gamble/lab-experience) | [Extracurriculars](/Patrick-Gamble/extracurriculars) |
 
 # Patrick Gamble
-<img src="/Headshot Smile.jpg" width="300" height="300">
+<img src="/Headshot Smile Cropped.jpg" width="300" height="300">
 
 ### Enthusiastic and meticulous engineering undergraduate student with industrious and systems-based approach to learning. Communicative and disciplined individual with an analytical nature.
 
